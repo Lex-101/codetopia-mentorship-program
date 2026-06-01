@@ -1,4 +1,2 @@
-The 3 Idiots
-Rush HOur
-Yhe Family Plan
-
+3 Idiots
+The Family Plan
